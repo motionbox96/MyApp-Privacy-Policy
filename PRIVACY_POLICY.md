@@ -43,8 +43,8 @@ You can:
 ## 6. Contact Us
 For questions about this Privacy Policy or your data, please contact:
 
-**Email:** your-email@example.com  
-**Phone (optional):** 1-800-555-5555
+**Email:** motionbox96@gmail.com
+
 
 ---
 
